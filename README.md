@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @5ego
 - 👀 I’m interested in Unblocked games
-- 🌱 I’m currently learning dota 2
-- 📫 How to reach me 5ego on discord.
+- 🌱 I’m currently learning: Dota 2
+- 📫 How to reach me: @5ego on discord.
 - ⚡ Fun fact: I have 2000+ hours in dota 2
 
 <!---
